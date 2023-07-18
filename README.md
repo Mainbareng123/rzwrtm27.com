@@ -1,3 +1,4 @@
-JANGAN LUPA DI FOLLOW YA KNTL !
+KEPO AMAT SI
 
-https://instagram.com/rzwrtm27?
+COBA COPY LINK INI !
+https://mainbareng123.github.io/rzwrtm27.com/ANAK HARAM.html
